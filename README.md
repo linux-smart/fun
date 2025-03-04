@@ -1,2 +1,3 @@
-# fun
-Various mics. projects and ideas
+# FUN
+Various misc. projects and ideas
+End-Joy thee Adventure! =)
